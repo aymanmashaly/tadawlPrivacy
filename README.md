@@ -1,0 +1,2 @@
+# tadawlPrivacy
+سياسات الخصوصية
